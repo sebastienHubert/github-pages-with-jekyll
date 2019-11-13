@@ -1,3 +1,3 @@
-# Welcome to my blog
+# All about bananas and oranges
 
-I'm glad you are here. I plan to talk about ...
+I'm glad you are here. Do you love fruit as much as I do?
